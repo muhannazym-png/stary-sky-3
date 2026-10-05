@@ -1,0 +1,1 @@
+# stary-sky-3
